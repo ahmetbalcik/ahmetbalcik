@@ -6,6 +6,6 @@
 
 💼 İşbirliği yapmak istediğim konular: **Açık Kaynak Projeler, Veri Bilimi, ve Web Geliştirme**. Eğer aynı ilgi alanlarına sahipsen, birlikte projeler üretmek isterim!
 
-📫 Benimle iletişime geçmek için: [E-posta](mailto:blck.ahmet@icloud.com) | [Instagram](https://www.instagram.com/ahmetbalciks_/)
+📫 Benimle iletişime geçmek için: [E-posta](mailto:abalcik.ahmet@gmail.com) | [Instagram](https://www.instagram.com/ahmetbalciks_/)
 
 👀 GitHub profilimde gezinirken keyif almanı umuyorum. Birlikte kodlamak için sabırsızlanıyorum!
